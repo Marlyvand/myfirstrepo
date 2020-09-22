@@ -8,3 +8,4 @@
 
 ![nog een afbeelding](zuyd-xxxl.jpg)
 
+[website van zuyd.nl van alle opleidingen](https://www.zuyd.nl/opleidingen), ga snel kijken!
